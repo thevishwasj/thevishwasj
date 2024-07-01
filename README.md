@@ -1,5 +1,5 @@
 
-# 💫 About Me:
+# Hi 👋, I'm Vishwas J
 I am a student
 
 
